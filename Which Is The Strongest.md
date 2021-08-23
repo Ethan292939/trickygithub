@@ -1,5 +1,0 @@
-# Elite Crasher of DOOMs: 2 votes (40%)
-# Elite Crashers: 1 vote (20%)
-# Celestials: 1 vote (20%)
-# Eternals: 1 vote (20%)
-# Celestials: -1 votes (What The f🤔k)
